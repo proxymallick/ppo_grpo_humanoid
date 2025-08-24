@@ -1,1 +1,1 @@
-![example GIF](ezgif.com-video-to-gif.gif)
+![example GIF](ezgif-44c27b3a7b47d9.gif)
